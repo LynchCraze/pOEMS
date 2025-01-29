@@ -1,7 +1,7 @@
 # **THE RIME: A CONFESSION**  
 *"Because this isn’t about the albatross."*  
 
- - LYNCHCRAZE
+ - lynchcraze
 
 ---
 
