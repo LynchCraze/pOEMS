@@ -1,6 +1,8 @@
 # **THE RIME: A CONFESSION**  
 *"Because this isn’t about the albatross."*  
 
+ - LYNCHCRAZE
+
 ---
 
 ## **I. THE WEDDING GUEST**  
